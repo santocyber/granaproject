@@ -3,6 +3,7 @@
 ## There is no planet B
 ### Global transformation project from an exploitative economy to a resource-based, sustainable and permanent, social and cultural economy
 
+## Collect our NFTs
 ### https://opensea.io/collection/pappapig/
 
 ## Website:
