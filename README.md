@@ -1,5 +1,7 @@
 # The Green Anarchy Project GrANA Project
 ## #GrANA #GrANAProject #TheGreenAnarchyProject
+## There is no planet B
+### Global transformation project from an exploitative economy to a resource-based, sustainable and permanent, social and cultural economy
 
 ### https://opensea.io/collection/pappapig/
 
