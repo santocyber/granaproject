@@ -6,7 +6,7 @@
 ## Project
 ### Neutralization of atmospheric CO2
 ### Solar energy generation
-### production of methane biogas using organic waste
+### Production of methane biogas using organic waste
 ### Biofertilizer production using organic waste
 ### Recycling cell phones and electronics to extract precious metals such as gold, silver and copper
 ### Food awareness for domesticated animals
